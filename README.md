@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @aluninho-mc5
-- 👀 I’m interested :)
-- 🌱 I’m currently (0W0)
-- 💞️ I’m looking to collaborate :0
-- 📫 How to reach :/
-- 😄 Pronoun :,
+- 👀 I’m interested (V W V)
+- 🌱 I’m currently  (T W T)
+- 💞️ I’m looking to collaborate (O W O)
+- 📫 How to reach :,
+- 😄 Pronoun (I W I)
 - ⚡ Fun fact :>
 
 <!---
