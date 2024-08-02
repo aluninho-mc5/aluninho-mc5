@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @aluninho-mc5
-- 👀 I’m interested xxx698058e
-- 🌱 I’m currently 28162829
-- 💞️ I’m looking to collaborate @#@y2u2ebxnsu
-- 📫 How to reach 44409626+{JFRCw
-- 😄 Pronoun 02umsalkkncw
-- ⚡ Fun fact asnnfo9q20987276
+- 👀 I’m interested :)
+- 🌱 I’m currently (0W0)
+- 💞️ I’m looking to collaborate :0
+- 📫 How to reach :/
+- 😄 Pronoun :,
+- ⚡ Fun fact :>
 
 <!---
 aluninho-mc5/aluninho-mc5 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
