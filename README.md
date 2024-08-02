@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate (O W O)
 - 📫 How to reach :,
 - 😄 Pronoun (I W I)
-- ⚡ Fun fact :>
+- ⚡ Fun fact :<
 
 <!---
 aluninho-mc5/aluninho-mc5 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
